@@ -1,5 +1,3 @@
-Studing about deep learning...👍
-
 Resume :  <br/>
 - 💬 Ask me about ...<br/>
 e-mail :dnfkdi1995@gmail.com
